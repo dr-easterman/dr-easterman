@@ -9,4 +9,4 @@ on n off passive-aggresive .. chronic hater n ragebaiter (yeah im miserable) so 
 
 read rentry before interaction (or sign my straw)
 
-<img src="https://file.garden/ZThmAnlIhS-zreal/Untitled345_20250708130347.png">
+<img src="https://file.garden/ZThmAnlIhS-zreal/Untitled345_20250801173451.png">
