@@ -1,5 +1,5 @@
 # advertisement for my own outlast-ponytown server!
-<img src="https://file.garden/ZThmAnlIhS-zreal/we%20want%20you.png">
+<img src="https://file.garden/ZThmAnlIhS-zreal/we%20want%20you.png" width=224 height=319> 
 reach out to my whispers or discord to join!
 
 
