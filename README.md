@@ -1,8 +1,13 @@
-# advertisement for my own outlast-ponytown server!
-<img src="https://file.garden/ZThmAnlIhS-zreal/we%20want%20you.png" width=224 height=319> 
-reach out to my whispers or discord to join!
+
+# advertisement for my own outlast-ponytown server! 
+<div align="center">
+  <img src="https://file.garden/ZThmAnlIhS-zreal/weewant%20you.png"> 
+  
+  reach out to my whispers or discord to join!
+</div>
 
 
+# 
 
 im currently heavily heavily fixated w/ "old"-roblox/exploiters (how original) .. 007n7 irl/major kin 
 
